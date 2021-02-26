@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Discord.js**
 
-- 📫 How to reach me **akulusog@gmail.co,**
+- 📫 How to reach me **akulusog@gmail.com **
 
 - ⚡ Fun fact **I am better than you XD**
 
